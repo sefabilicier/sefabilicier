@@ -5,10 +5,6 @@
 
 - 💬 Ask me about **a problem to solve successfully or not being able to solve to learn from mistakes**
 
-- 📫 How to reach me **https://tr.linkedin.com/in/sefabilicier**
-
-- 📄 Know about my experiences [https://tr.linkedin.com/in/sefabilicier](https://tr.linkedin.com/in/sefabilicier)
-
 - ⚡ Fun fact **I think I am energetic**
 
 <h3 align="left">Connect with me:</h3>
