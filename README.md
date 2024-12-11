@@ -3,6 +3,6 @@
 
 - 🌱 I’m currently learning **required steps**
 
-- 💬 Ask me about **a problem to solve successfully or not being able to solve to learn from mistakes**
+- 💬 Ask me about **a problem to solve successfully or being able to solve it by learning from mistakes**
 
 - ⚡ Fun fact **I think I am energetic**
