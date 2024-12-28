@@ -3,4 +3,4 @@
 
 - 💬 Ask me about **a problem to solve successfully or being able to solve it by learning from mistakes**
 
-- ⚡ Fun fact **I think I am energetic**
+- ⚡ Fun fact **life is crazy**
